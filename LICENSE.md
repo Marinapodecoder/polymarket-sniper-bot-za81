@@ -1,4 +1,4 @@
-# 
+# Polymarket top Strategy: decentralized-trading & gas-optimization offers the most advanced Polymarket strategy, with decentralized-trading and gas-optimization. Ideal for
 
 
 
